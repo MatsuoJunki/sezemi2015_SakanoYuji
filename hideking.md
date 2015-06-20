@@ -1,1 +1,2 @@
-kokonnnitihahagojigoji
+こんにちは。hidekingです。
+スマブラとドラムが好きです！
